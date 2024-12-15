@@ -6,6 +6,9 @@ To start, I gathered a few videos I had previously taken of nature around where 
 
 # References/Inspiration
 The 3D Additivist Manifesto SD - Dylan Schenker [(https://youtu.be/ZY55CcQ9Bxw?si=TPYPhDAzO96JoRbv](https://youtu.be/ZY55CcQ9Bxw?si=TPYPhDAzO96JoRbv)
+
 The Myth Of A Wilderness Without Humans - Mark Dowie (https://thereader.mitpress.mit.edu/the-myth-of-a-wilderness-without-humans/)
+
 The World Without Us – Alan Weisman
+
 Ecology Without Nature – Timothy Morton
