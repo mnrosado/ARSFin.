@@ -14,3 +14,5 @@ The Myth Of A Wilderness Without Humans - Mark Dowie (https://thereader.mitpress
 The World Without Us – Alan Weisman
 
 Ecology Without Nature – Timothy Morton
+# Video Documentation
+https://drive.google.com/file/d/1tGCr5TsaDWcGUrlhsin5pUL8OIYFEGVe/view?usp=sharing
